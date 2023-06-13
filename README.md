@@ -1,1 +1,1 @@
-Hey, I'm Aidan Villasenor! I am currently an undergrad at Northwestern University's Engineering School studying computer science and data science. Feel free to reach out at aidanvillasenor2025@u.northwestern.edu
+Hey, I'm Aidan Villasenor! I am currently an undergrad at Northwestern University's Engineering School studying computer science and statistics. Feel free to reach out at aidanvillasenor2025@u.northwestern.edu
